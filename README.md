@@ -14,3 +14,6 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+# The man with a new idea is a crank until the idea succeeds.
+　　 具有新想法的人在其想法实现之前是个怪人。
+　　 －Mark Twain（美国作家马克?吐温）
